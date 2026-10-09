@@ -1,0 +1,2 @@
+# im-dumb
+side hustle
